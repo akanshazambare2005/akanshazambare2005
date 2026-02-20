@@ -66,7 +66,7 @@ LinkedIn:
 https://linkedin.com/in/akansha-zambare  
 
 GitHub:  
-https://github.com/akanshazambare  
+https://github.com/akanshazambare2005 
 
 Email:  
 akanshazambare382@gmail.com  
