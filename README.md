@@ -63,7 +63,7 @@ Git • GitHub • VS Code
 ## 📫 Connect with Me
 
 LinkedIn:  
-https://linkedin.com/in/akansha-zambare  
+https://www.linkedin.com/in/akansha-zambare-b8045b32a/ 
 
 GitHub:  
 https://github.com/akanshazambare2005 
